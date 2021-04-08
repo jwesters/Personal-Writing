@@ -1,0 +1,97 @@
+{
+  "main": {
+    "id": "c4a18abc2396d1cf",
+    "type": "split",
+    "children": [
+      {
+        "id": "cff3c78aa45c6cf5",
+        "type": "leaf",
+        "state": {
+          "type": "markdown",
+          "state": {
+            "file": "Finished/Top 25 Songs.md",
+            "mode": "preview"
+          }
+        }
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "000a99d9e0a89e98",
+    "type": "split",
+    "children": [
+      {
+        "id": "bb24e67e7276c67f",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "f8b62dd7c201e52d",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {}
+            }
+          },
+          {
+            "id": "7c8205d8016aa889",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 381
+  },
+  "right": {
+    "id": "1ab32cda7734833d",
+    "type": "split",
+    "children": [
+      {
+        "id": "9c553a6b0f9590d9",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "f3d0f249ee2c10f1",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "Finished/Top 25 Songs.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "active": "cff3c78aa45c6cf5",
+  "lastOpenFiles": [
+    "Finished/Top 25 Songs.md",
+    "Drafts/Weekly Songs.md",
+    "Drafts/Rolling Stone's Top 500 Album (2020).md",
+    "Drafts/Rolling Stone Top 500 (2020).md",
+    "Drafts/Untitled.md"
+  ]
+}
