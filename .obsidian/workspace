@@ -4,13 +4,13 @@
     "type": "split",
     "children": [
       {
-        "id": "cff3c78aa45c6cf5",
+        "id": "842a9557ee39de60",
         "type": "leaf",
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Finished/Top 25 Songs.md",
-            "mode": "preview"
+            "file": "Drafts/Weekly Songs.md",
+            "mode": "source"
           }
         }
       }
@@ -68,7 +68,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Finished/Top 25 Songs.md",
+                "file": "Drafts/Weekly Songs.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -86,10 +86,10 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "cff3c78aa45c6cf5",
+  "active": "842a9557ee39de60",
   "lastOpenFiles": [
-    "Finished/Top 25 Songs.md",
     "Drafts/Weekly Songs.md",
+    "Finished/Top 25 Songs.md",
     "Drafts/Rolling Stone's Top 500 Album (2020).md",
     "Drafts/Rolling Stone Top 500 (2020).md",
     "Drafts/Untitled.md"
