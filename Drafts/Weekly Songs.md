@@ -41,3 +41,23 @@
 	"I saw you last week / We haven't talked since graduation / You're moving H with a guy to catch up / But it's clear you're using / I didn't have the guts to be a better friend / But what's another ten grand gonna fix in the end?"
 	
 	After hearing this song I looked up the video for it on YouTube and... I can probably say I wouldn't have listened to the song in its entirety.  It's a douchey too-cool hipster type video.  So listen to the song first before watching the video.
+	
+43. "Empty Sky" Bruce Springsteen (The Rising). This song or "Atlantic City" are my favourite Springsteen songs.  I'm not a huge Springsteen fan and generally like his hits.  This song (and pretty much the entire "The Rising" album) are written about 9/11 and dealing with it afterwards.  It's not an "America, Fuck Yeah!" album but written in a tasteful manner.  I remember after 9/11 watching a documentary about two French brothers who "were given permission by New York City Fire Department to film a documentary about a probationary firefighter. Their subject was Antonios Benetatos, who was assigned to the Engine 7/Ladder 1/Battalion 1 Firehouse on Duane Street in Lower Manhattan. They intended to make a film about the "probie's" first experiences as a firefighter. On the morning of September 11, the firehouse, under the direction of Battalion Chief Joseph W. Pfeifer, was called out on a reported "odor of gas" at Church and Lispenard streets. Jules Naudet rode with Pfeifer to investigate, while Gédéon stayed behind at the firehouse to film the "probie."  As the Battalion 1 firefighters examined the supposed gas leak, American Airlines Flight 11 flew overhead. Turning his camera to follow the plane, Jules Naudet taped one of only three known recordings of the first plane hitting the North Tower (Tower 1) of the World Trade Center in the 9/11 attacks." (https://en.wikipedia.org/wiki/9/11_(2002_film))
+
+	   I'm not emotional watching movies but cried like a baby watching this movie.  The only other movie I can remember crying to before this one was "Fried Green Tomatoes" (Yes, that movie that Netflix recommends as a LBGQT movie).
+	   
+	   Back to the song, though.  In College I was in a Modern English class and in one of the anthology textbooks there were some poems and songs.  This song was in it but only the first stanza:
+	    
+		"I woke up this morning / I could barely breathe 
+		Just an empty impression In the bed where you used to be / 
+		I want a kiss from your lips / I want an eye for an eye /
+		I woke up this morning to the empty sky"
+		
+	I'm not sure if I owned the album before or after reading the lyrics, but they have always stuck with me.  
+	
+	44. "Life by the Drop" Stevie Ray Vaughan (The Sky Is Crying).  Just Stevie Ray Vaughan and a 12-string on this song.  I was unsure of what album this song is from as I remember hearing it on a best-of compilation album.  It is from "The Sky is Crying" which was released  in 1991 on his posthumous album, “The Sky is Crying.” (https://oakcliff.advocatemag.com/2015/07/the-story-behind-stevie-ray-vaughans-life-by-the-drop/).  This surprised me as I thought I had seen a video of him playing this song on MTV Unplugged but it ends up I misremembered and the song is "Pride and Joy".  At least I remembered it was played on a 12-string.
+		
+		  Stevie Ray Vaughan is often lauded for his guitar skills, and rightfully so.  However, in this song his guitar playing is second to his voice.  When looking up what album this song came from, I found out that the song was actually written by someone else, Doyle Bramhall (https://www.texasmonthly.com/list/the-secret-history-of-texas-music/life-by-the-drop-1991/). 
+
+
+		
