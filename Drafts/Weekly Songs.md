@@ -55,7 +55,7 @@
 		
 	I'm not sure if I owned the album before or after reading the lyrics, but they have always stuck with me.  
 	
-	44. "Life by the Drop" Stevie Ray Vaughan (The Sky Is Crying).  Just Stevie Ray Vaughan and a 12-string on this song.  I was unsure of what album this song is from as I remember hearing it on a best-of compilation album.  It is from "The Sky is Crying" which was released  in 1991 on his posthumous album, “The Sky is Crying.” (https://oakcliff.advocatemag.com/2015/07/the-story-behind-stevie-ray-vaughans-life-by-the-drop/).  This surprised me as I thought I had seen a video of him playing this song on MTV Unplugged but it ends up I misremembered and the song is "Pride and Joy".  At least I remembered it was played on a 12-string.
+44. "Life by the Drop" Stevie Ray Vaughan (The Sky Is Crying).  Just Stevie Ray Vaughan and a 12-string on this song.  I was unsure of what album this song is from as I remember hearing it on a best-of compilation album.  It is from "The Sky is Crying" which was released  in 1991 on his posthumous album, “The Sky is Crying.” (https://oakcliff.advocatemag.com/2015/07/the-story-behind-stevie-ray-vaughans-life-by-the-drop/).  This surprised me as I thought I had seen a video of him playing this song on MTV Unplugged but it ends up I misremembered and the song is "Pride and Joy".  At least I remembered it was played on a 12-string.
 		
 		  Stevie Ray Vaughan is often lauded for his guitar skills, and rightfully so.  However, in this song his guitar playing is second to his voice.  When looking up what album this song came from, I found out that the song was actually written by someone else, Doyle Bramhall (https://www.texasmonthly.com/list/the-secret-history-of-texas-music/life-by-the-drop-1991/). 
 
