@@ -9,7 +9,7 @@
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Drafts/Weekly Songs.md",
+            "file": "Finished/Top 25 Songs.md",
             "mode": "source"
           }
         }
@@ -68,7 +68,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Drafts/Weekly Songs.md",
+                "file": "Finished/Top 25 Songs.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -88,8 +88,8 @@
   },
   "active": "a5758c31f2990131",
   "lastOpenFiles": [
-    "Drafts/Weekly Songs.md",
     "Finished/Top 25 Songs.md",
+    "Drafts/Weekly Songs.md",
     "Drafts/Rolling Stone's Top 500 Album (2020).md",
     "Drafts/Rolling Stone Top 500 (2020).md",
     "Drafts/Untitled.md"
