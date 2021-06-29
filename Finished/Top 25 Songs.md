@@ -55,11 +55,15 @@ Here is a Spotify list of my Top 25 songs (I didn't include my most hated song f
 
 23. ["Speed Trap Town"](https://open.spotify.com/track/0Ex5dDCH0qz5ySfm3seYJr?si=3a08094f15a04bba) - Jason Isbell (Something More Than Free).  I can't bring up the [Drive-By Truckers](https://en.wikipedia.org/wiki/Drive-By_Truckers) without mentioning Jason Isbell.  He is a former member of the band that has had a highly successful solo career since splitting with them.  In a song that's a little over four minutes, he has many memorable lines.  It would be easy enough to copy and paste all the lyrics to the song but here are a few that create a vivid picture whenever I hear them: 
       	
-		"She said, "It's none of my business but it breaks my heart" / Dropped a dozen cheap roses in my shopping cart"
-		"Well it's a Thursday night but there's a high school game / Sneak a bottle up the bleachers and forget my name"
+		"She said, "It's none of my business but it breaks my heart" 
+		Dropped a dozen cheap roses in my shopping cart"
+		"Well it's a Thursday night but there's a high school game 
+		Sneak a bottle up the bleachers and forget my name"
 		"It's a boy's last dream and a man's first loss"
-		"I'll sleep until I'm straight enough to drive, then decide / If there's anything that can't be left behind"
-		"How long can they keep you in the ICU? / Veins through the skin like a faded tattoo"
+		"I'll sleep until I'm straight enough to drive, then decide 
+		If there's anything that can't be left behind"
+		"How long can they keep you in the ICU? 
+		Veins through the skin like a faded tattoo"
 	
        I'm not a huge reader of fiction but I do like an author who can paint a picture in your mind with only a few words.  I would include Jason Isbell in this category.
 
