@@ -64,7 +64,7 @@ Here is a Spotify list of my Top 25 songs (I didn't include my most hated song f
 		If there's anything that can't be left behind"
 		"How long can they keep you in the ICU? 
 		Veins through the skin like a faded tattoo"
-	
+			
        I'm not a huge reader of fiction but I do like an author who can paint a picture in your mind with only a few words.  I would include Jason Isbell in this category.
 
 24. ["Nothing's Funny"](https://open.spotify.com/track/5SAymv88YXD5vhmkRiVaWz?si=4183288d8b8149ed) - Dillinger Escape Plan (One of Us Is the Killer). This isn't my favourite song of theirs but probably the most accessible for the average listener (next to ["One of Us Is the Killer"](https://open.spotify.com/track/6bSZPUVSKdGjSdeEEPzycS?si=f17e50346a4a4f1d)).  This band is extremely heavy yet most of their songs are in standard tuning (a few tracks are in drop D).  Similar to [The Mars Volta](https://en.wikipedia.org/wiki/The_Mars_Volta) and like  [Marc Ribot's](https://en.wikipedia.org/wiki/Marc_Ribot) playing with [Tom Waits](https://en.wikipedia.org/wiki/Tom_Waits)), there is a lot of dissonance with the chord voicings that guitarist, [Ben Weinman](https://en.wikipedia.org/wiki/Ben_Weinman), chooses to use.  This song showcases this with the verse having odd chords yet the chorus is melodic.  A bit of [mathcore](https://en.wikipedia.org/wiki/Mathcore) yin and yang.     
