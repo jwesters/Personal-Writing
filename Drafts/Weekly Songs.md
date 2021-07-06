@@ -81,7 +81,7 @@
       Looking up the lyrics, I found this on [Genius.com](https://genius.com/James-mcmurtry-south-dakota-lyrics): "An unexpected early and wicked October blizzard hit western South Dakota from October 3-5 in 2013, killing 10,000 – 20,000 cattle.  
 	  This is a story song about a fellow who lived through it and sees it as just one more of life’s cruel turns."
 	  
-	  Also, how can you not want to listen to a song when the first verse is the following lyrics?
+	  Also, how can you not want to listen to a song when the first verse is the following?
 	  
 	  	"It was the 23rd of May 
 		When I heard the sergeant say 
@@ -90,4 +90,4 @@
 		"And I'm not dyin' in this shit-hole town 
 		For a soldier's pay"
 		
-	  
+  54. ["Steam"](https://open.spotify.com/track/2wPTuonKLuHOc3034E7lLY?si=ee00b3ae32ab4db5) Peter Gabriel (Us).  I bought this album on tape because of this song and because I liked the music video.  Watching the video now, it still holds up in a 90s cheesy sort of way.  I haven't listened to this song in years and it really has a great bass line to it.  This song sticks out to me more of the fact that I bought the tape at a local mall.  Afterwards, my mom was hanging out at a perfume section of the mall and I was getting nauseous from all the scents.  She was a chatty Cathy and continued to talk for awhile.  On the drive home from the mall we were dropping my sister off at some place and she was taking forever to get out of the car.  I told my mom I wasn't feeling well so she was trying to get my sister to hurry up.  Well, she wasn't quick enough and I puked all my parents 1991 Ford Taurus.     
