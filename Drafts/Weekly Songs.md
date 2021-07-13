@@ -91,3 +91,21 @@
 		For a soldier's pay"
 		
   54. ["Steam"](https://open.spotify.com/track/2wPTuonKLuHOc3034E7lLY?si=ee00b3ae32ab4db5) Peter Gabriel (Us).  I bought this album on tape because of this song and because I liked the music video.  Watching the video now, it still holds up in a 90s cheesy sort of way.  I haven't listened to this song in years and it really has a great bass line to it.  This song sticks out to me more of the fact that I bought the tape at a local mall.  Afterwards, my mom was hanging out at a perfume section of the mall and I was getting nauseous from all the scents.  She was a chatty Cathy and continued to talk for awhile.  On the drive home from the mall we were dropping my sister off at some place and she was taking forever to get out of the car.  I told my mom I wasn't feeling well so she was trying to get my sister to hurry up.  Well, she wasn't quick enough and I puked all my parents 1991 Ford Taurus.     
+ 
+  55. ["Would?"](https://open.spotify.com/track/5sFDReWLrZHLFZFjHsjUTS?si=b44b3d4a65684711) Alice in Chains (Dirt).  I admit it, I was not into the "grunge" scene when it started up.  At the time I was between the age of 8-11 and my choice in music at the time was suspect; my first purchases on CD were Barenaked Ladies, Weird Al, a Ren and Stimpy compilation and The Crash Test Dummies.  When I got older and started to play guitar when I was 14 or 15 I started to listen to music that I could play on guitar so I gravitated towards punk and grunge music.  I started with Nirvana and made my way through a lot of the grunge bands (even those that were not considered grunge, like Pearl Jam).  I started to listen to Alice in Chains after [Layne Staley's death](https://en.wikipedia.org/wiki/Layne_Staley) in 2002.  I was familiar with them before he died but only knew a few songs.  After his death I bought or downloaded the album "Dirt" and it was probably the darkest album I had heard at the time.  Even though Jerry Cantrell wrote a lot of the songs, you could tell Layne Staley was tortured with his heroin addiction.  This song is the album closer and is about dealing with addiction.  It chillingly closes the album with the following lyrics which are almost a prediction of what would unfortunately happen to Staley:
+	
+	  	    "Am I wrong?
+			Have I run too far to get home?
+			Have I gone?
+			Left you here alone
+			Am I wrong?
+			Have I run too far to get home? Yeah
+			Have I gone?
+			Left you here alone
+			If I would, could you?
+
+
+
+
+
+	
