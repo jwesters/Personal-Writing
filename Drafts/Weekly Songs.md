@@ -104,7 +104,14 @@
 			Left you here alone
 			If I would, could you?
 
+56. ["2:45 AM"](https://open.spotify.com/track/53q5m5Bpkr1Pin7mPKQxMi?si=e611464abb7246dd). Elliott Smith (Either/Or).  The previous song was somber and this song is even more depressing.  Once again, I'm not sure if I knew of Elliott Smith before or after his ["suicide"](https://www.theguardian.com/music/2004/mar/19/popandrock.elliottsmith).  The song is fairly simple in it's composition (I believe four basic guitar chords and a bass run that has a few variations).  The reason I point this out is that I find some of Elliott Smith's songs quite complicated on guitar and he is also singing at the same time.  Specifically, ["Angeles"](https://open.spotify.com/track/2uwN3PDudlRkAKE3wA0OqJ?si=363b1fe0a2c54126) comes to mind it has some very quick finger picking in it.  The song is very sparse through out, just vocals and an acoustic guitar.  It is comprised of three verses, no chorus or bridge.  I the last verse of the song drums and bass join him as he says the following lyrics:
 
+		I'm walking out on center circle
+		The both of you can just fade to black
+		I'm walking out on center circle
+		Been pushed away and I'll never go back
+		
+       Who would have thought he was depressed?
 
 
 
