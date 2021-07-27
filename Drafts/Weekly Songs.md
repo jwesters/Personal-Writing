@@ -104,7 +104,7 @@
 			Left you here alone
 			If I would, could you?
 
-56. ["2:45 AM"](https://open.spotify.com/track/53q5m5Bpkr1Pin7mPKQxMi?si=e611464abb7246dd). Elliott Smith (Either/Or).  The previous song was somber and this song is even more depressing.  Once again, I'm not sure if I knew of Elliott Smith before or after his ["suicide"](https://www.theguardian.com/music/2004/mar/19/popandrock.elliottsmith).  The song is fairly simple in it's composition (I believe four basic guitar chords and a bass run that has a few variations).  The reason I point this out is that I find some of Elliott Smith's songs quite complicated on guitar and he is also singing at the same time.  Specifically, ["Angeles"](https://open.spotify.com/track/2uwN3PDudlRkAKE3wA0OqJ?si=363b1fe0a2c54126) comes to mind it has some very quick finger picking in it.  The song is very sparse through out, just vocals and an acoustic guitar.  It is comprised of three verses, no chorus or bridge.  I the last verse of the song drums and bass join him as he says the following lyrics:
+56. ["2:45 AM"](https://open.spotify.com/track/53q5m5Bpkr1Pin7mPKQxMi?si=e611464abb7246dd). Elliott Smith (Either/Or).  The previous song was somber and this song is even more depressing.  Once again, I'm not sure if I knew of Elliott Smith before or after his ["suicide"](https://www.theguardian.com/music/2004/mar/19/popandrock.elliottsmith).  The song is fairly simple in its composition (I believe four or five basic guitar chords and a bass run that has a few variations).  The reason I point this out is that I find some of Elliott Smith's songs quite complicated on guitar and he is also singing at the same time.  Specifically, ["Angeles"](https://open.spotify.com/track/2uwN3PDudlRkAKE3wA0OqJ?si=363b1fe0a2c54126) comes to mind it has some very quick finger picking in it.  The song is very sparse through out, just vocals and an acoustic guitar.  It is comprised of three verses, no chorus or bridge.  I the last verse of the song drums and bass join him as he says the following lyrics:
 
 		I'm walking out on center circle
 		The both of you can just fade to black
@@ -113,6 +113,5 @@
 		
        Who would have thought he was depressed?
 
-
-
+57. ["Where It's At"](https://open.spotify.com/track/3Pdjem5pj41gilOgXqkNtL?si=e3a8ad0b9d554b2f). Beck (Odelay).  I remember loving this song because of the music video.  Funny enough, I don't remember the music video and had to look it up ["Where It's At" Music Video](https://www.youtube.com/watch?v=EPfmNxKLDG4).  I also noticed that there's a huge difference in the song length between the music video and the album version (the music video is 2 minutes shorter).  This is the first time I noticed this.  Something about this song stood out to 12-13 year old me.  I did like Beck's song ["Loser"](https://open.spotify.com/track/5PntSbMHC1ud6Vvl8x56qd?si=9683c0c0f8df419c) but never really listened to anything else on the "Mellow Gold" album.  At this time most of the music I listened to was either on MuchMusic, something my sister or my friends had bought or something I borrowed from the library.  This song is a combination of distinctly different genres but still put together in a catchy pop song format.  That's the genius of Beck. 
 	
