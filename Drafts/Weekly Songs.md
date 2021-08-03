@@ -124,4 +124,4 @@
 		It began my dreams imaginations  
 		Perfectly at peace so I move along a bit higher
 
-       This lyrics means to me someone who is comfortable in their own skin and is happy with life.  As someone who isn't comfortable in their own skin I envy those that are and are continuing to seek happiness in life, regardless of what others think.
+       There lyrics mean to me someone who is comfortable in their own skin and is happy with life.  As someone who isn't comfortable in their own skin I envy those that are and are continuing to seek happiness in life, regardless of what others think.
