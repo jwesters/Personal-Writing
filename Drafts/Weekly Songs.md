@@ -115,3 +115,13 @@
 
 57. ["Where It's At"](https://open.spotify.com/track/3Pdjem5pj41gilOgXqkNtL?si=e3a8ad0b9d554b2f). Beck (Odelay).  I remember loving this song because of the music video.  Funny enough, I don't remember the music video and had to look it up ["Where It's At" Music Video](https://www.youtube.com/watch?v=EPfmNxKLDG4).  I also noticed that there's a huge difference in the song length between the music video and the album version (the music video is 2 minutes shorter).  This is the first time I noticed this.  Something about this song stood out to 12-13 year old me.  I did like Beck's song ["Loser"](https://open.spotify.com/track/5PntSbMHC1ud6Vvl8x56qd?si=9683c0c0f8df419c) but never really listened to anything else on the "Mellow Gold" album.  At this time most of the music I listened to was either on MuchMusic, something my sister or my friends had bought or something I borrowed from the library.  This song is a combination of distinctly different genres but still put together in a catchy pop song format.  That's the genius of Beck. 
 	
+58. ["Up Up & Away"](https://open.spotify.com/track/1RUTIdTnFs8lHSc0Zr4UJB?si=fb966399b5b7464f). Kid Cudi (Man on the Moon: The End of Day).  I first heard this song while watching a fairly shitty movie (I had to Google the song title to check what movie it was in as it was that forgettable).  The movie was [Jexi](https://www.imdb.com/title/tt9354944/?ref_=fn_al_tt_1).  The one good thing I can say about the movie is that how many people are wrapped in technology and social media, primarily by using their phones, that they don't live in the moment.  "Up Up & Away" starts with a catchy delayed guitar riff and when the drums enter when the vocals do.    
+
+		And those happy thoughts in my head  
+		I'm feeling like I'm Peter Pan  
+		Minus the tights and the fairy's  	
+		Happy to see how far I've come to the same place  
+		It began my dreams imaginations  
+		Perfectly at peace so I move along a bit higher
+
+       This lyrics means to me someone who is comfortable in their own skin and is happy with life.  As someone who isn't comfortable in their own skin I envy those that are and are continuing to seek happiness in life, regardless of what others think.
