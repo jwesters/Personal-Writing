@@ -124,4 +124,19 @@
 		It began my dreams imaginations  
 		Perfectly at peace so I move along a bit higher
 
-       There lyrics mean to me someone who is comfortable in their own skin and is happy with life.  As someone who isn't comfortable in their own skin I envy those that are and are continuing to seek happiness in life, regardless of what others think.
+       These lyrics mean to me someone who is comfortable in their own skin and is happy with life.  As someone who isn't comfortable in their own skin I envy those that are and are continuing to seek happiness in life, regardless of what others think.
+	   
+59. ["Act III Scene 2 (Shakespeare)"](https://open.spotify.com/track/5vPRX452ABQIbon7MVYYx5?si=204ea600b6e7492f). Saul Williams (Saul Williams.  I'm not sure how I heard of Saul Williams.  I believe it was either when I started listening to Sage Francis and looking for similar artists or checking stuff that Zack de la Rocha from Rage Against the Machine appeared on.  Saul Williams is a beat poet who ended up having a music career.  His style would be most similar to hip-hop for his first few albums.  He is one of those rappers where I find his lyrics more impactful when you read his lyrics than when you just listen to them as often you miss subtleties in his lyrics.  For example, I've heard this song probably a hundred times and reading the following lyrics today I realized I missed many of the things he said: 
+
+		A machete in the heady: Hutu, Tutsi, Leone. 
+		An Afghani in a shanty. 
+		Doodle dandy yank on! 
+		An Iraqi in Gap khaki. 
+		Coca Coma come on! 
+		
+60. ["Snuff"](https://open.spotify.com/track/3RptaQ5Xb8WvtpItZ2f9Hi?si=fd2f183fc0e347fc) Slipknot (All Hope is Gone).  I was into Slipknot's first two albums but then stopped listening to them.  Looking at when their first two albums came out (1999 and 2001) and when their third and fourth albums came out (2004 and 2008) I'm thinking that over this time period I started listening to different types of music.  It is way different from their other songs and could be considered a nu-metal ballad of sorts.  It could be argued that Slipknot isn't generally known for their well... uh... "deep"  lyrics and this song might be their deepest in terms of lyrics (which, admittedly, isn't saying a lot).  Two lines that standout in this song for me are the following:   
+
+		You couldn't hate enough to love  
+		Is that supposed to be enough?
+		
+	I never realized there was a music video for this song and just watched it... don't watch it.
