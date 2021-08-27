@@ -140,3 +140,13 @@
 		Is that supposed to be enough?
 		
 	I never realized there was a music video for this song and just watched it... don't watch it.
+	
+61. ["I Wish"](https://open.spotify.com/track/3LklW07tvdx2AHsgfi1Mng?si=a32d1d54f54a4b57). Skee-Lo (I Wish).  This might be my laziest post as this is something I have already written.  It was written for a university class I took in 2008.  Here's the original post: (https://82muchf00d.wordpress.com/2008/04/07/whatever-happened-to-skee-lo/)
+
+      "It seems like almost everyone has got a shitty gift at one point in their lives.  While my grandma has bought me some cds that surprised me (such as [Sublime’s self-titled album](http://en.wikipedia.org/wiki/Sublime_%28album%29)) she also had bought me a few cds which I initially thought were jokes.  If you are reading this blog I’m pretty sure you know the album is [Skee-lo’s](http://en.wikipedia.org/wiki/Skee-lo#I_Can.27t_Stop) “I Wish”.
+
+      I remember not minding the song when it came out but the rest of the album is horrible.  It’s almost like a parody of a rap album.  It seems like Skee-lo hasn’t done much since this album came out in 1995.  He released an album in 2000 and that’s about it.  Maybe I’m being optimistic but I think Skee-lo’s busy in the studio crafting what he believes to be the next “[Pet Sounds](http://en.wikipedia.org/wiki/Pet_sounds)“.  It’s more likely that it will have more in common with “[Metal Machine Music](http://en.wikipedia.org/wiki/Metal_Machine_Music)” though."
+	  
+	  Back to now-my original post was a bit vicious and I did ask for a cd single of this album as a gift as I truly liked the song.  The reason this song stands out for me is for the comments I received from the above blog post.  I've never posted anything online before where in the feedback I've been asked to fellate rappers and been called the n-word (I am Caucasian).  
+	  
+	  Here are the [comments](https://82muchf00d.wordpress.com/2008/04/07/whatever-happened-to-skee-lo/#comments).  Please note that I am providing a trigger warning for these comments; not because of the language but because I might anger you for making fun of Skee-lo.
