@@ -171,7 +171,7 @@
 		
 	I was aware of Nirvana before Kurt Cobain's death but couldn't say I was a huge fan.  When Nevermind came out I was 8 years old and didn't know what to think of it.  An interesting tidbit is that I bought "Weird Al" Yankovic's album "Off the Deep End" which had the song ["Smell Likes Nirvana"](https://open.spotify.com/track/3rREGSHjY1RmsTj81wL5X4?si=f8ba3ef434784d99) on it.  I saw the video for this song numerous times and when I saw the video for ["Smell Like Teen Spirit"](https://open.spotify.com/track/5ghIJDpPoe3CfHMGu71E6T?si=1cfa5764461c4512) I thought it was a parody of Weird Al's video.  
 	
-	I personally like the Nirvana album "Nevermind" more but I "Serve the Servants" to be a better opening song album than "Smell Likes Teen Spirit".  This is not to say it's a better song but that it seems more indicative of the feeling of the album.
+	I personally like the Nirvana album "Nevermind" more but I think that "Serve the Servants" is a better opening song for an album than "Smell Likes Teen Spirit".  This is not to say it's a better song but that it seems more indicative of the feeling of the album.
 	
 64. ["It'll All Work Out"](https://open.spotify.com/track/4fWi9tlWzs2XUejI8qjC6d?si=c4303c25d57a4509) Blake Mills (Break Mirrors).  I heard of Blake Mills as I was subscribed to a Patreon where a person transcribed a lot of [Julian Lage](https://en.wikipedia.org/wiki/Julian_Lage) songs.  He posted a transcription of this version of ["It'll All Work Out"](https://www.youtube.com/watch?v=AetBG8e-ECs).  What first stood out to me is not only the intricacies of his rhythm playing but the fact he's also singing while playing.  My rhythm playing is sloppy at best and my singing is non-existent.  
 
