@@ -150,3 +150,37 @@
 	  Back to now-my original post was a bit vicious and I did ask for a cd single of this album as a gift as I truly liked the song.  The reason this song stands out for me is for the comments I received from the above blog post.  I've never posted anything online before where in the feedback I've been asked to fellate rappers and been called the n-word (I am Caucasian).  
 	  
 	  Here are the [comments](https://82muchf00d.wordpress.com/2008/04/07/whatever-happened-to-skee-lo/#comments).  Please note that I am providing a trigger warning for these comments; not because of the language but because I might anger you for making fun of Skee-lo.
+	  
+ 62. ["Can't Get It Out"](https://open.spotify.com/track/03gwBLH630cKYF1gr6hMGF?si=b86ce0741f0440f0) Brand New (Science Fiction).  I remember this album dropping out of nowhere in 2017 and I was pleasantly surprised.  I didn't start listening to Brand New until 2010ish which was after their last album ["Daisy"](https://en.wikipedia.org/wiki/Daisy_(Brand_New_album)) was released.  I thought that the band wasn't going to release any new material even though they were still touring as it was 8 years between albums and they weren't known for having huge gaps between albums.  I saw them in concert in 2016 and they did not play anything from this album in concert.  
+
+		Even though I am not religious, I am impressed by the religious imagery that Jesse Lacy has in his lyrics.  In particular, the pre-chorus to this song is what always stood out for me:
+		
+			I thought I was a creator
+			I'm here just hanging around
+			Got my messiah impression
+			I think I got it nailed down
+
+		These lyrics could be viewed as Jesse mocking Jesus Christ but I think it shows his growth as an individual and artist.  The band was huge and he was forced into the spotlight which is something he was not comfortable with.
+			
+63. ["Serve the Servants"](https://open.spotify.com/track/3w5Ekq9O8g0gGFEsT77Ydi?si=893177d8367b4485) Nirvana (In Utero).  Maybe the best lyrics to ever start an album:  
+
+		Teenage angst has paid off well
+		Now I'm bored and old
+		Self-appointed judges judge
+		More than they have sold
+		
+	I was aware of Nirvana before Kurt Cobain's death but couldn't say I was a huge fan.  When Nevermind came out I was 8 years old and didn't know what to think of it.  An interesting tidbit is that I bought "Weird Al" Yankovic's album "Off the Deep End" which had the song ["Smell Likes Nirvana"](https://open.spotify.com/track/3rREGSHjY1RmsTj81wL5X4?si=f8ba3ef434784d99) on it.  I saw the video for this song numerous times and when I saw the video for ["Smell Like Teen Spirit"](https://open.spotify.com/track/5ghIJDpPoe3CfHMGu71E6T?si=1cfa5764461c4512) I thought it was a parody of Weird Al's video.  
+	
+	I personally like the Nirvana album "Nevermind" more but I "Serve the Servants" to be a better opening song album than "Smell Likes Teen Spirit".  This is not to say it's a better song but that it seems more indicative of the feeling of the album.
+	
+64. ["It'll All Work Out"](https://open.spotify.com/track/4fWi9tlWzs2XUejI8qjC6d?si=c4303c25d57a4509) Blake Mills (Break Mirrors).  I heard of Blake Mills as I was subscribed to a Patreon where a person transcribed a lot of [Julian Lage](https://en.wikipedia.org/wiki/Julian_Lage) songs.  He posted a transcription of this version of ["It'll All Work Out"](https://www.youtube.com/watch?v=AetBG8e-ECs).  What first stood out to me is not only the intricacies of his rhythm playing but the fact he's also singing while playing.  My rhythm playing is sloppy at best and my singing is non-existent.  
+
+	   What makes this song memorable to me is this verse might be one of the funniest and saddest I've ever heard.  Maybe because I've had a similar situation happen?
+	   
+		Now, I don't feel a speck of hate -  
+		really, no, I'm trying to get my story straight -  
+		when you called me from the car when you were on your way  
+		with your friend from San Francisco that you told me was gay  
+		and I guess he was a closet straight  
+		Get it all out now  
+		and it'll all work out

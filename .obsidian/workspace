@@ -4,13 +4,13 @@
     "type": "split",
     "children": [
       {
-        "id": "cafa4488fd8d8b49",
+        "id": "2c5ab198879be6cf",
         "type": "leaf",
         "state": {
           "type": "markdown",
           "state": {
             "file": "Drafts/Weekly Songs.md",
-            "mode": "preview"
+            "mode": "source"
           }
         }
       }
@@ -86,7 +86,7 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "cafa4488fd8d8b49",
+  "active": "2c5ab198879be6cf",
   "lastOpenFiles": [
     "Drafts/Weekly Songs.md",
     "Finished/Top 25 Songs.md",
