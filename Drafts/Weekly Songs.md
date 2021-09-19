@@ -184,3 +184,5 @@
 		and I guess he was a closet straight  
 		Get it all out now  
 		and it'll all work out
+		
+	65. ["Part 1: "Acknowledgement""](https://open.spotify.com/track/7unF2ARDGldwWxZWCmlwDM?si=c284a060813f4b3az) John Coltrane (A Love Supreme). I've never been into jazz or been able to really _understand_  it.  One someone says something is modal I don't completely get it even thought I understand modes.  This album is also one of the rare albums where I bought the original LP (meaning the four songs, not an original pressing) and went out and bought the deluxe version later on.  It is interesting in that this album is viewed as being spiritual and/or religious yet it is essentially an instrumental album.  There's something with this track where the bass line comes in and Coltrane follows shortly afterwards that's just hits me every time.  There are certain parts in it where Coltrane plays his saxophone so hard that it sort of distorts.  I'm not sure the exact name for this but it hits me every time, even if I've listened to this song a hundred times.
