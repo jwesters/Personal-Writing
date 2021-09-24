@@ -186,3 +186,21 @@
 		and it'll all work out
 		
 	65. ["Part 1: "Acknowledgement""](https://open.spotify.com/track/7unF2ARDGldwWxZWCmlwDM?si=c284a060813f4b3az) John Coltrane (A Love Supreme). I've never been into jazz or been able to really _understand_  it.  One someone says something is modal I don't completely get it even thought I understand modes.  This album is also one of the rare albums where I bought the original LP (meaning the four songs, not an original pressing) and went out and bought the deluxe version later on.  It is interesting in that this album is viewed as being spiritual and/or religious yet it is essentially an instrumental album.  There's something with this track where the bass line comes in and Coltrane follows shortly afterwards that's just hits me every time.  There are certain parts in it where Coltrane plays his saxophone so hard that it sort of distorts.  I'm not sure the exact name for this but it hits me every time, even if I've listened to this song a hundred times.
+	
+	66. ["Romeo Had Juliette"](https://open.spotify.com/track/6tM8cMX9S4AyRd5sDDrzhN?si=f5d1e4df0d884c8d). Lou Reed (New York).  A friend recommended the Lou Reed album ["The Raven"](https://en.wikipedia.org/wiki/The_Raven_(Lou_Reed_album)) to me and as it wasn't available in store I bought "New York" instead.  Later on I bought "The Raven"  and hated it and my friend bought "New York" and hated it.  This song starts with a false intro and then tape being sped up.  The album has a live sound to it where Lou Reed is coming out of one speaker and the other guitarist is out of the right.  This song starts with a very rudimentary chord progression and Lou Reed's lyrics are almost like a spoken rap but the lines don't often rhyme.
+
+		The song begins with:
+
+			Caught between the twisted stars the plotted lines the faulty map  
+			that brought Columbus to New York  
+			Betwixt between the East and west he calls on her wearing a leather vest  
+			the earth squeals and shudders to a halt
+			
+		Which tells the story of Romeo and Juliette in gritty 80s New York.  Nothing portrays this scene more than these two lines from the final verse of the song:
+		
+			I'll take Manhattan in a garbage bag with Latin written on it that says 	 
+			"It's hard to give a shit these days"
+			
+		I don't know what this exactly means but I love the lyrics regardless.
+			
+		
