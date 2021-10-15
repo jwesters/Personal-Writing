@@ -210,3 +210,14 @@
 	      If you ever want to hear the radio edit of the song [check this out](https://open.spotify.com/track/6Bh21G1OwdiRGnhnCV6v95?si=435a6e4796b14292).  I find the constant edits and abrupt noises more offensive than the original uncensored version.
 		  
 	69. ["Bueno"](https://open.spotify.com/track/2SSBJhvMsujY94GK5JAtKs?si=afaa6c93426344eb) Morphine (Cure for Pain).   I ended up buying this album before hearing any music by the band.  I had heard of the band before and the CD was cheap so I bought it.  I was expecting a grunge rock band, sort of like Nirvana, and this song is anything but that.   This song is made up of slide bass guitar, saxophone, drums and [Mark Sandman's](https://en.wikipedia.org/wiki/Mark_Sandman) deep voice.  It is definitely a unique song and the riff played by the slide bass is catchy as hell.     
+
+    70. ["4th of July"](https://open.spotify.com/track/0W5Pa3GW06IQ7BS5CbTTOM?si=417ee55b5a3a4ffd) Shooter Jennings (Put the O Back in Country).  Shooter Jennings was the worst concert I've ever been to and I'm not even sure he played this song at it.  He had all the energy live of a quaaluded octogenarian.  That said, I really like this song.  I normally hate "rah rah American" country songs but this song is catchy as hell, especially the chorus:
+
+			You were pretty as can be, sitting in the front seat  
+			Looking at me, telling me you love me  
+			And you're happy to be with me on the 4th of July  
+			We sang Stranglehold 'til the stereo  
+			Couldn't take no more of that rock and roll  
+			So we put on a little George Jones and just sang along
+			
+	       It is a simple four chord song but the lyrics make it stand out.  Check the song out if you haven't heard it but don't see Shooter live.
