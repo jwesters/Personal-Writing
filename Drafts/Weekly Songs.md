@@ -221,3 +221,8 @@
 			So we put on a little George Jones and just sang along
 			
 	       It is a simple four chord song but the lyrics make it stand out.  Check the song out if you haven't heard it but don't see Shooter live.
+		   
+	   71. ["Wear It So Well"] (https://open.spotify.com/track/7zobj12CJdA7gfKj5re1Ik?si=0b56aa4d29ea4f14) Far (Water & Solutions).  The first time I can remember hearing Far it was their cover of Ginuwine's "Pony".  It was uh... interesting.  I ended up downloading the album that song was on ("At Night We Live") and really enjoying the rest of the album.  I went back to listen to their previous albums and this song has always stood out for me.  There's a point in it where  Jonah Matranga screams "You look like hell" and the vocals distort.  I love this moment and it gives me goose bumps every time I hear it.
+	   
+	   72. ["Dust on the Bottle"] (https://open.spotify.com/track/0Xg68XXMRWzKQvD5S6BFvI?si=79e1f3bf81f9448c) David Lee Murphy (Out With a Bang).  As I have previously mentioned, I'm not a huge fan of country music.  I find the patriotism and the "girl left me"/"I got the girl" songs quite trite and predictable.  That said, this song is one of the "I got the girl" songs but I still love it.  I have a thing for songs with catchy choruses and this is one of them.  The lyrics aren't the greatest but the guitar riff is catchy.
+	   
