@@ -235,3 +235,15 @@
 				I've got some friends, some that I hardly know  
 				But we've had some times, I wouldn't trade for the world  
 				We chase these days down with talks of the places that we will go 
+				
+	  76. ["I Could Have Lied"](https://open.spotify.com/track/0NSbiBKXoODbsPwjSivfBr?si=372de0812bc044d1) Red Hot Chili Peppers (Blood Sugar Sex Magik).  Another one of those songs that sticks out to me as it happened at the end (or towards the end) of a relationship.  This list of favourite/memorable songs is now turning out to be like a teenaged girls LiveJournal from the mid 00s.  
+
+			I was always conflicted about the following lyrics.  I wasn't sure if they were  Anthony Kiedis talking about a relationship when he cheated on someone or if he fell back to his heroin addiction:
+
+				I could have lied, I'm such a fool  
+				My eyes could never, never, never keep their cool  
+				Showed her and I told her how  
+				She struck me but I'm fucked up now
+				
+			
+				
