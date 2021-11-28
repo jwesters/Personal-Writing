@@ -245,5 +245,5 @@
 				Showed her and I told her how  
 				She struck me but I'm fucked up now
 				
-			
+	  77.  ["Wring It Out"](https://open.spotify.com/track/0JCeVdVxPFsLrVj0En0R1D?si=6766fc966de84335) Rival Schools (Pedals).  I have no idea where I first heard of Rival Schools.  I have a sticker of them on my guitar case from probably 20 years ago and I'm thinking I either got it at the Warped Tour (I went in '01 and '02) or from the band promo stuff I used to do.  I liked a few songs off their first album ["United by Fate"](https://en.wikipedia.org/wiki/United_by_Fate) but this album is solid all the way through.  There's something about how this song begins where the intro chords sound *off* to me and I'm not sure why.  I don't have the best ear so maybe it's just me.  Also, IMO the [video](https://www.youtube.com/watch?v=v6QzdZ7GpwQ) has nothing to do with the song lyrics but it's still fun to watch. 
 				
