@@ -248,3 +248,14 @@
 	  77.  ["Wring It Out"](https://open.spotify.com/track/0JCeVdVxPFsLrVj0En0R1D?si=6766fc966de84335) Rival Schools (Pedals).  I have no idea where I first heard of Rival Schools.  I have a sticker of them on my guitar case from probably 20 years ago and I'm thinking I either got it at the Warped Tour (I went in '01 and '02) or from the band promo stuff I used to do.  I liked a few songs off their first album ["United by Fate"](https://en.wikipedia.org/wiki/United_by_Fate) but this album is solid all the way through.  There's something about how this song begins where the intro chords sound *off* to me and I'm not sure why.  I don't have the best ear so maybe it's just me.  Also, IMO the [video](https://www.youtube.com/watch?v=v6QzdZ7GpwQ) has nothing to do with the song lyrics but it's still fun to watch. 
 				
 	  78. ["When I Needed You"](https://open.spotify.com/track/3SopOSh7ff9vYC1WZAFq7O?si=44717ded76c343fa) Carlie Rae Jepsen (E•MO•TION).  I legitimately like this song and not in an ironic, Brooklyn-hipster way.  I heard about this song from [Song Exploder](https://songexploder.net/carly-rae-jepsen) and it is catchy as hell.  It is hard for me to explain why I like this song as it is both a typical pop song but at the same time it isn't.  It is in a major key but the lyrics are about a relationship ending.  The bass line and bass fill on this song though... that's why I love it.
+	  
+	  79. ["Long Way Down"](https://open.spotify.com/track/1J307YEKcn9pH7QT5fXTLt?si=7422a1edce734a7f) The Goo Goo Dolls (A Boy Named Goo). This song is a banger, and it might surprise some people but The Goo Goo Dolls were originally signed to [Metal Blade Records](https://en.wikipedia.org/wiki/Metal_Blade_Records) (this label originally signed Metallica).  This song is not a metal song by any means but the riff is catchy and the chorus... is just wow:
+
+				Long way down  
+				I don't think I'll make it on my own  
+				Long way down  
+				I don't want to live in here alone  
+				Long way down  
+				I don't think I'll make it on my own
+				
+			This song is ingrained in my memories as I had a friend who would often be the "designated driver" (there's a reason I put that in quotes as his DUI might contradict this) and he had this song on a CD in his car.  It is almost like a ["Wayne's World"](https://www.imdb.com/title/tt0105793/?ref_=fn_al_tt_1) moment in that this song would play and people would just mumble along to the verse but as soon as the chorus would come in people would be singing along at the top of their lungs.  You never realize at the time that those dumb moments as kid will stand out for you later in life.
