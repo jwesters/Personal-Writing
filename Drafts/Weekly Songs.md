@@ -259,3 +259,10 @@
 				I don't think I'll make it on my own
 				
 			This song is ingrained in my memories as I had a friend who would often be the "designated driver" (there's a reason I put that in quotes as his DUI might contradict this) and he had this song on a CD in his car.  It is almost like a ["Wayne's World"](https://www.imdb.com/title/tt0105793/?ref_=fn_al_tt_1) moment in that this song would play and people would just mumble along to the verse but as soon as the chorus would come in people would be singing along at the top of their lungs.  You never realize at the time that those dumb moments as kid will stand out for you later in life.
+			
+	80.  ["No Shelter"](https://open.spotify.com/track/2qTZMq2MUC20HFGQghNpVF?si=a2011ae0491849ff) Rage Against the Machine (Godzilla Soundtrack).  I was curious when this soundtrack came out as I remember wanting to go see this movie when it was released but it was sold out.  I ended up seeing [Six Days Seven Nights](https://www.imdb.com/title/tt0120828/?ref_=nm_flmg_act_28) instead.  I had to check when Godzilla came out to see when this movie came out as it was that forgetful.  This song came out when I was a huge Rage fan but still had dial-up internet and songs were difficult to find unless you used IRC or FTPs (this is before the Kazaa and Napster days).  My buddy bough the album and I was eager to listen to the song so he held up the phone to the speaker while the song played.  Obviously the quality was horrendous, but damn it, I got to hear the song.  
+
+			Rage was criticized for being on a major motion picture soundtrack but the following entry from Wikipedia regarding the soundtrack makes an interesting point:
+			
+			"A notable entry is "[No Shelter](https://en.wikipedia.org/wiki/No_Shelter "No Shelter")" by [Rage Against the Machine](https://en.wikipedia.org/wiki/Rage_Against_the_Machine "Rage Against the Machine"), in which a line in the lyrics of the song appears to criticize the film for distracting the public, saying, "Godzilla, pure motherfucking filler. Get your eyes off the real killer.""
+			
