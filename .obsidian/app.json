@@ -1,4 +1,6 @@
 {
   "obsidianCss": true,
-  "spellcheck": true
+  "spellcheck": true,
+  "legacyEditor": false,
+  "livePreview": true
 }
