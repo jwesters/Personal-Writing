@@ -189,25 +189,25 @@
 	
 66. ["Romeo Had Juliette"](https://open.spotify.com/track/6tM8cMX9S4AyRd5sDDrzhN?si=f5d1e4df0d884c8d). Lou Reed (New York).  A friend recommended the Lou Reed album ["The Raven"](https://en.wikipedia.org/wiki/The_Raven_(Lou_Reed_album)) to me and as it wasn't available in store I bought "New York" instead.  Later on I bought "The Raven"  and hated it and my friend bought "New York" and hated it.  This song starts with a false intro and then tape being sped up.  The album has a live sound to it where Lou Reed is coming out of one speaker and the other guitarist is out of the right.  This song starts with a very rudimentary chord progression and Lou Reed's lyrics are almost like a spoken rap but the lines don't often rhyme.
 
-		The song begins with:
+	The song begins with:
 
 			Caught between the twisted stars the plotted lines the faulty map  
 			that brought Columbus to New York  
 			Betwixt between the East and west he calls on her wearing a leather vest  
 			the earth squeals and shudders to a halt
 			
-		Which tells the story of Romeo and Juliette in gritty 80s New York.  Nothing portrays this scene more than these two lines from the final verse of the song:
+	Which tells the story of Romeo and Juliette in gritty 80s New York.  Nothing portrays this scene more than these two lines from the final verse of the song:
 		
 			I'll take Manhattan in a garbage bag with Latin written on it that says 	 
 			"It's hard to give a shit these days"
 			
-		I don't know what this exactly means but I love the lyrics regardless.
+	I don't know what this exactly means but I love the lyrics regardless.
 			
 67. ["Wonderful Life"](https://open.spotify.com/track/4ryVNWVTXnYHRMUB0bv3no?si=ee1fe76035094f48). Nick Cave (Nocturama).  I first heard of Nick Cave not through his music but because of his writing.  At one point I was really into the author [Chuck Palahniuk](https://en.wikipedia.org/wiki/Chuck_Palahniuk) and through him I heard of [Michael Gira](https://en.wikipedia.org/wiki/Michael_Gira) (who coincidentally is another musician but I heard of him first through his writing).  Gira wrote a short story collection called "The Consumer" that many of Palahniuk's fans said was great but morbid.  Of course I went looking for it and couldn't find it online and it was selling for a ridiculous price on eBay in the early 2000s (I believe $300-$500 USD).  "The Consumer" was published on Henry Rollin's [2.13.6 label](https://en.wikipedia.org/wiki/2.13.61).  Looking through the catalog of books on the site I saw a book titled ["And then the Ass Saw the Angel"](https://en.wikipedia.org/wiki/And_the_Ass_Saw_the_Angel).  This title stood out to me and I eventually got the book (but haven't read it yet...).  I ended up buying this Nick Cave album and, honestly, I'm not a fan of it.  The only song I like is the first song.  There's a certain part in it at 1:40 where Nick Cave sings "There will be nothing between us, baby"  where the vocals cut out on the word between.  It's almost like he stepped away from the mic when singing this line and it gives me goose bumps every time I hear it.
 	
 68. ["What It's Like"](https://open.spotify.com/track/0nbuX7OZkEY5agMkpr98wS?si=28148d3d3d0b4295) Everlast (Whitey Ford Sings the Blues).  As I was a 90s computer nerd growing up, someone mentioned to me on [IRC](https://en.wikipedia.org/wiki/Internet_Relay_Chat) that one of the rappers from [House of Pain](https://en.wikipedia.org/wiki/House_of_Pain) became a solo act and had a rap/blues album that just came out.  I found this song on Napster or Kazaa and of course it probably took a 1/2 hour or so to download because of dial-up.  After the first listen I really liked it as it combined hip hop and story telling in songs which I loved at the time.  It's a great song but it doesn't excuse Everlast for his godawful cover of Johnny Cash's ["Folsom Prison Blues"](https://open.spotify.com/track/2CJYv37IEbvbACWgI8IeHx?si=d28a737b11984f41)
-	
-	      If you ever want to hear the radio edit of the song [check this out](https://open.spotify.com/track/6Bh21G1OwdiRGnhnCV6v95?si=435a6e4796b14292).  I find the constant edits and abrupt noises more offensive than the original uncensored version.
+
+      If you ever want to hear the radio edit of the song [check this out](https://open.spotify.com/track/6Bh21G1OwdiRGnhnCV6v95?si=435a6e4796b14292).  I find the constant edits and abrupt noises more offensive than the original uncensored version.
 		  
 69. ["Bueno"](https://open.spotify.com/track/2SSBJhvMsujY94GK5JAtKs?si=afaa6c93426344eb) Morphine (Cure for Pain).   I ended up buying this album before hearing any music by the band.  I had heard of the band before and the CD was cheap so I bought it.  I was expecting a grunge rock band, sort of like Nirvana, and this song is anything but that.   This song is made up of slide bass guitar, saxophone, drums and [Mark Sandman's](https://en.wikipedia.org/wiki/Mark_Sandman) deep voice.  It is definitely a unique song and the riff played by the slide bass is catchy as hell.     
 
@@ -220,7 +220,7 @@
 			Couldn't take no more of that rock and roll  
 			So we put on a little George Jones and just sang along
 			
-	       It is a simple four chord song but the lyrics make it stand out.  Check the song out if you haven't heard it but don't see Shooter live.
+	    It is a simple four chord song but the lyrics make it stand out.  Check the song out if you haven't heard it but don't see Shooter live.
 		   
    71. ["Wear It So Well"](https://open.spotify.com/track/7zobj12CJdA7gfKj5re1Ik?si=0b56aa4d29ea4f14) Far (Water & Solutions).  The first time I can remember hearing Far it was their cover of Ginuwine's "Pony".  It was uh... interesting.  I ended up downloading the album that song was on ("At Night We Live") and really enjoying the rest of the album.  I went back to listen to their previous albums and this song has always stood out for me.  There's a point in it where  Jonah Matranga screams "You look like hell" and the vocals distort.  I love this moment and it gives me goose bumps every time I hear it.
 	   
@@ -238,7 +238,7 @@
 				
   76. ["I Could Have Lied"](https://open.spotify.com/track/0NSbiBKXoODbsPwjSivfBr?si=372de0812bc044d1) Red Hot Chili Peppers (Blood Sugar Sex Magik).  Another one of those songs that sticks out to me as it happened at the end (or towards the end) of a relationship.  This list of favourite/memorable songs is now turning out to be like a teenaged girls LiveJournal from the mid 00s.  
 
-			I was always conflicted about the following lyrics.  I wasn't sure if they were  Anthony Kiedis talking about a relationship when he cheated on someone or if he fell back to his heroin addiction:
+		I was always conflicted about the following lyrics.  I wasn't sure if they were  Anthony Kiedis talking about a relationship when he cheated on someone or if he fell back to his heroin addiction:
 
 				I could have lied, I'm such a fool  
 				My eyes could never, never, never keep their cool  
