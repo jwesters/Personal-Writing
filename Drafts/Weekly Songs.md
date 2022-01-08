@@ -173,7 +173,7 @@
 	
 	I personally like the Nirvana album "Nevermind" more but I think that "Serve the Servants" is a better opening song for an album than "Smell Likes Teen Spirit".  This is not to say it's a better song but that it seems more indicative of the feeling of the album.
 	
-64. ["It'll All Work Out"](https://open.spotify.com/track/4fWi9tlWzs2XUejI8qjC6d?si=c4303c25d57a4509) Blake Mills (Break Mirrors).  I heard of Blake Mills as I was subscribed to a Patreon where a person transcribed a lot of [Julian Lage](https://en.wikipedia.org/wiki/Julian_Lage) songs.  He posted a transcription of this version of ["It'll All Work Out"](https://www.youtube.com/watch?v=AetBG8e-ECs).  What first stood out to me is not only the intricacies of his rhythm playing but the fact he's also singing while playing.  My rhythm playing is sloppy at best and my singing is non-existent.  
+	64. ["It'll All Work Out"](https://open.spotify.com/track/4fWi9tlWzs2XUejI8qjC6d?si=c4303c25d57a4509) Blake Mills (Break Mirrors).  I heard of Blake Mills as I was subscribed to a Patreon where a person transcribed a lot of [Julian Lage](https://en.wikipedia.org/wiki/Julian_Lage) songs.  He posted a transcription of this version of ["It'll All Work Out"](https://www.youtube.com/watch?v=AetBG8e-ECs).  What first stood out to me is not only the intricacies of his rhythm playing but the fact he's also singing while playing.  My rhythm playing is sloppy at best and my singing is non-existent.  
 
 	   What makes this song memorable to me is this verse might be one of the funniest and saddest I've ever heard.  Maybe because I've had a similar situation happen?
 	   
