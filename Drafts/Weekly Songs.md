@@ -307,3 +307,13 @@
 		I will not fight for you  
 		I will hold your burning flag in my hand  
 		As I watch your empire fall
+
+91. ["Liar"](https://www.youtube.com/watch?v=iaysTVcounI) Rollins Band (Weight).  Another song I can't find on Spotify.  I think this may become the trend with some artists and bands leaving [Spotify](https://www.latimes.com/entertainment-arts/music/story/2022-01-30/spotify-joe-rogan-covid-neil-young-list-of-artists#:~:text=Entertainment%20figures%20Neil%20Young%2C%20left,have%20cut%20ties%20with%20Spotify.&text=Veteran%20singer%2Dsongwriter%20Neil%20Young,SPOTIFY's%20deadly%20misinformation%20about%20COVID.%E2%80%9D) but I'm unsure if Rollins Band were ever on Spotify.  I first heard this song on [Beavis and Butthead](https://en.wikipedia.org/wiki/Beavis_and_Butt-Head)  when I was in Grade 5 or Grade 6 and I liked the intensity of Rollins.  The song goes from him quietly talking to the listener, almost lulling them into a false sense of security before he goes off with: 
+
+		cause I'm a liar  
+		yeah I'm a liar  
+		I'll tear your mind out  
+		I'll burn your soul  
+		I'll turn you into me 
+
+	Also, the part where Rollins screams and his neck veins pop out was something my friend and I in Grade 6 would imitate.  Got to love juvenile humour. 
