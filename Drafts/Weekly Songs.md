@@ -327,6 +327,6 @@
 		Superman never made any money  
 		Savin' the world from Solomon Grundy
 
-	I know it blatantly says his name in the song but I never knew what those words until then.  
+	I know it blatantly says his name in the song but I never knew what those words were until then.  
 
 	
