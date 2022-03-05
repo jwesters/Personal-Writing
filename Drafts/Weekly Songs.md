@@ -319,3 +319,14 @@
 	Also, the part where Rollins screams and his neck veins pop out was something my friend and I in Grade 6 would imitate.  Got to love juvenile humour. 
 
 92. ["Ritual"](https://open.spotify.com/track/5ZiTzbMB53mIiP3I4uQCmt?si=c0f806ac04e8480d) Ghost (Opus Eponymous).  In High School I went through a death metal phase, listening to bands like [Deicide](https://en.wikipedia.org/wiki/Deicide_(band)) and [Morbid Angel](https://en.wikipedia.org/wiki/Morbid_Angel).  These bands were "satanic" or had satanic overtones and maybe I thought I was an OG edge lord.  Looking back at a lot of these bands, their music doesn't hold up (with maybe the exception of Morbid Angel).  I was never big into bands that had many theatrics, maybe the exception being seeing Tool in concert.  I heard of this band or song through a podcast, possibly [Jim Florentine's](https://en.wikipedia.org/wiki/Jim_Florentine) and loved the old school metal sound of them.  I really like their newer stuff as well.  Before the pandemic I saw them in concert and it may be one of the best live concerts I have ever seen in terms of production and just how much the crowd loved them.  I miss live events and hope to see some soon.  The Rage Against the Machine concert I have tickets for has been rescheduled 3 times now and I think it's more likely for [Chinese Democracy 2](https://en.wikipedia.org/wiki/Chinese_Democracy) to be released before I see them in concert.
+
+93. ["Superman's Song"](https://open.spotify.com/track/0biVEmibGXjE84BbliA23t?si=a88bcb36bcfc4cbf) Crash Test Dummies (The Ghosts That Haunt Me).  The second cd I ever bought was Crash Test Dummies - God Shuffled His Feet, but this is the song that stands out to me by them.  The reason it stands out for me is that I remember waking up one morning and my mom (and maybe also my dad?) were listening to music.  This never happened in the morning and I asked what they were listening to.  My mom said that my dad had heard a band the day before and liked them and wanted my mom to go buy their cassette tape.  This was odd as my dad never really listened to music at home and I had never heard him mention interest in a "newer" musician.
+
+	I never really read Superman comic books so it wasn't until a few years ago that I realized that the following lyrics refer to [Solomon Grundy](https://en.wikipedia.org/wiki/Solomon_Grundy_(character)) 
+
+		Superman never made any money  
+		Savin' the world from Solomon Grundy
+
+	I know it blatantly says his name in the song but I never knew what those words until then.  
+
+	
