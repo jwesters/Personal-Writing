@@ -334,8 +334,14 @@
 	Going back to the song, the main riff uses a [Kay/Baxendale mandocello](https://www.gbase.com/gear/baxendale-conversion-50s-kay-mandocello-2019-sunburst) which gives it a unique twangy sound.  The part of this song that has always stood out for me was the lines:
 
 		He was an absolute piece of shit to tell the truth  
-		But he never told the truth to me  
-
+		But he never told the truth to me
+		
 	Obviously, the lyrics are about a politician.  
+		
+95. ["The Gentle Art of Making Enemies"](https://open.spotify.com/track/2s5eB1seiy3yZqYCdQucXj?si=46338dac32d647cf) Faith No More (King For a Day, Fool For a Lifetime). The first song I heard by Faith No More was likely ["Epic"](https://open.spotify.com/track/4ReyTz0y3TGkX48wO3Llot?si=ccdad2d61f30438f) but I started listening to the band more after hearing this song.  I ended up hearing the live version of this song on a bootleg VHS of either a System of a Down concert or it was a Machine Head concert in Calgary.  The person who was kind enough to send me the concerts on VHS was the bass player from ["Breach of Trust"](https://en.wikipedia.org/wiki/Breach_of_Trust_(band)) .  He ended up filling up the tape with other live stuff and one of the songs he included was a live version of Faith No More singing "The Gentle Art of Making Enemies".
 
+	  I remember seeing the singer, Mike Patton, dressed up in a suit and wondering what the hell he was going to be doing.  The heavy riff hits in, he starts, jumping around and begins crooning the verse.  Smooth vocals but the part that caught me was:
 	
+		Don't you look so surprised  
+		Happy birthday, fucker!
+
