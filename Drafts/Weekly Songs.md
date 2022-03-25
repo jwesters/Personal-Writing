@@ -345,3 +345,5 @@
 		Don't you look so surprised  
 		Happy birthday, fucker!
 
+96. ["Ricky"](https://open.spotify.com/track/2QbGvQssb0VLLS4x5NOmyJ?si=8896c659187141ed) Denzel Curry (Zuu).  I really first heard Denzel Curry with his amazing cover of Rage Against the Machine's "Bulls on Parade".  You can see the video [here](https://www.youtube.com/watch?v=ZY4ywyFXdik)   I started listening to more of his songs and found a lot of them I really liked or they were "meh". 
+      One of the songs of his that I think is catchy and a banger is "Ricky".  The podcast Song Exploder goes into great detail about this song on this [episode](https://songexploder.net/denzel-curry).   Something about the opening which sounds *off* and then it goes into that catchy beat.  It's also a short song (around 2 1/2 minutes) so it doesn't over stay its welconme.
