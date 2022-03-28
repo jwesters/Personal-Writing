@@ -346,4 +346,13 @@
 		Happy birthday, fucker!
 
 96. ["Ricky"](https://open.spotify.com/track/2QbGvQssb0VLLS4x5NOmyJ?si=8896c659187141ed) Denzel Curry (Zuu).  I really first heard Denzel Curry with his amazing cover of Rage Against the Machine's "Bulls on Parade".  You can see the video [here](https://www.youtube.com/watch?v=ZY4ywyFXdik)   I started listening to more of his songs and found a lot of them I really liked or they were "meh". 
-      One of the songs of his that I think is catchy and a banger is "Ricky".  The podcast Song Exploder goes into great detail about this song on this [episode](https://songexploder.net/denzel-curry).   Something about the opening which sounds *off* and then it goes into that catchy beat.  It's also a short song (around 2 1/2 minutes) so it doesn't over stay its welconme.
+      One of the songs of his that I think is catchy and a banger is "Ricky".  The podcast Song Exploder goes into great detail about this song on this [episode](https://songexploder.net/denzel-curry).   Something about the opening which sounds *off* and then it goes into that catchy beat.  It's also a short song (around 2 1/2 minutes) so it doesn't over stay its welcome.
+      
+  97. ["Bro Hymn (live)"](https://open.spotify.com/track/2DgZjpyv2kEB8nIl6Xp0VJ?si=8fcc0ebb7cc14b34) Pennywise (Full Circle).  This is one of the rare songs where I prefer the live version to the original version.  The [meaning](https://en.wikipedia.org/wiki/Bro_Hymn) of the song gives a context of why I prefer the live version more.  There's something that gives me goosebumps when the following lyrics are sung:
+
+			Life is the most precious thing you can lose  
+			While you were here the fun was never ending  
+			Laugh a minute was only the beginning  
+			Jason, my brother, this one's for you
+		
+		Compare the studio version and the live version and you will know what I mean.
