@@ -360,3 +360,12 @@
 98.  ["Pony"](https://open.spotify.com/track/108U9FAOtfHOAIGdHG12Fc?si=ebf7f8fd01894e08) Far (At Night We Live).  This song came out in 2010, wayyyy after there were tons of nu-metal bands doing [this](https://loudwire.com/nu-metal-covers-popular-songs/).  This isn't to say Far are a nu-metal band (see post 71 to see another "Far" song).  This is one of those songs that is a guilty pleasure and I enjoy it more than the [original](https://open.spotify.com/track/5FR54UnizyI8pE5E9Zb0Dt?si=1265c1aba7ed42f3)   It's a ham-fisted cover that somehow ends up being a banger.  I was able to snag the single of this song on vinyl from Amazon and the [design on the vinyl](https://i.discogs.com/on-QarqyUOuKmipqJm25BM79OMtn33bIEOcZnozs9ss/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTI1NTM5/OTAtMTM1MzI0MTY0/Ni0zMTUxLmpwZWc.jpeg) on it makes me look like I'm a [brony](https://www.urbandictionary.com/define.php?term=Brony).
 
 99. [ "Down"](https://open.spotify.com/track/0HDaKOlVAfUWXdFR2RhBtN?si=212c5d36ac3f43e2) 311 (311).  I first heard of 311 after listening to Rage Against the Machine.  I'm pretty sure I heard this song on Much Music but for some reason I think it was on a commercial advertising this album.  Yes, that was a thing long before YouTube started doing it.  As their career has gone on, their music at times has become more cringy and cheesy.  That said, this album is solid from beginning to end.  They also put on a hell of a live show.  I saw them do a 30 minute set at the Warped Tour and wish they had played for longer.
+
+100. ["The Park Avenue Sobriety Test"](https://open.spotify.com/track/2l25C8AMIiv64VzBlcbKn7?si=6c2416cd208642a0) Joel Plaskett (The Park Avenue Sobriety Test). The first song I heard by Joel Plaskett (technically, it was Joel Plaskett Emergency) was either Drunk Teenagers or Fashionable People.  This song stands out for me as I saw him on the tour supporting this album.  Even though the lyrics for this song are actually quite sad, like:
+
+			It’s the pain in your heart, it’s the look in your eyes  
+			When all of your friends are dropping like flies  
+			It’s the hole in the sky when a young man dies  
+			And you just want to go to sleep
+
+		The song's melody and feel is quite happy.  I have a horrible ear so I'm unable to figure out if this song is in a major or minor key to help support my theory.  I just remember Joel Plaskett playing this live and smiling his ass off the entire time while playing it.  That's true love of your art.  
