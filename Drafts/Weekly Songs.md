@@ -369,3 +369,5 @@
 			And you just want to go to sleep
 
 		The song's melody and feel is quite happy.  I have a horrible ear so I'm unable to figure out if this song is in a major or minor key to help support my theory.  I just remember Joel Plaskett playing this live and smiling his ass off the entire time while playing it.  That's true love of your art.  
+
+101. ["Cut Your Ribbon"](https://open.spotify.com/track/1DYud4lcStjYxJ8JBBva6g?si=7f489bf5a8f54ba1) Sparta (Wiretap Scars).  I previously mentioned that I bought this album and The Mars Volta's [De-Loused in the Comatorium](https://en.wikipedia.org/wiki/De-Loused_in_the_Comatorium) at the same time and initially this was the album I liked more.  This song, which is both the first single and track on the album, has a catchy guitar riff in 6/8 time (I actually thought it was in 3/4 time and looked it up but I'm surprised I was that close to guessing the time signature correctly).  The drums at the beginning, the somewhat clean guitar riff and then *BAM* almost the same guitar riff as before but with distortion.  It's amazing how much the dynamics of the song change with some distortion.
