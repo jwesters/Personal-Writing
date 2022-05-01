@@ -371,3 +371,12 @@
 		The song's melody and feel is quite happy.  I have a horrible ear so I'm unable to figure out if this song is in a major or minor key to help support my theory.  I just remember Joel Plaskett playing this live and smiling his ass off the entire time while playing it.  That's true love of your art.  
 
 101. ["Cut Your Ribbon"](https://open.spotify.com/track/1DYud4lcStjYxJ8JBBva6g?si=7f489bf5a8f54ba1) Sparta (Wiretap Scars).  I previously mentioned that I bought this album and The Mars Volta's [De-Loused in the Comatorium](https://en.wikipedia.org/wiki/De-Loused_in_the_Comatorium) at the same time and initially this was the album I liked more.  This song, which is both the first single and track on the album, has a catchy guitar riff in 6/8 time (I actually thought it was in 3/4 time and looked it up but I'm surprised I was that close to guessing the time signature correctly).  The drums at the beginning, the somewhat clean guitar riff and then *BAM* almost the same guitar riff as before but with distortion.  It's amazing how much the dynamics of the song change with some distortion.
+
+102. ["No Vaseline"](https://open.spotify.com/track/4wEbikMfcSFAukCbbL06si?si=23c64ffd22f44434) Ice Cube (Death Certificate).  I find "diss" songs are either meh, okay or vicious.  This song is the latter of those.  The only other song I find that may be as vicious as this song is Eminem's ["The Warning"](https://www.youtube.com/watch?v=ro-NdIc0u3w) but even then, "No Vaseline" is attacking a bunch of people.  Even the title, "No Vaseline", is referring to anal rape without lubricant.  Rather then explain what the song is about, read the Wikipedia [article](https://en.wikipedia.org/wiki/No_Vaseline) about it.  If you have an interest in early 90s rap, specifically about NWA, the [lyrics on Genius.com](https://genius.com/Ice-cube-no-vaseline-lyrics) provide a lot of details about what was happening around this time.   
+
+			Tried to diss Ice Cube, it wasn't worth it
+			'Cause the broomstick fit your ass so perfect
+			Cut my hair? Nah, cut them balls
+			'Cause I heard you like giving up the drawers
+
+		Absolutely ruthless.
