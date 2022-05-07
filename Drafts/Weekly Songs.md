@@ -380,3 +380,5 @@
 			'Cause I heard you like giving up the drawers
 
 		Absolutely ruthless.
+
+103. ["One"](https://open.spotify.com/track/0LAcM6I7ijW4VVW0aytl1t?si=99972f83eab14905) Metallica (...And Justice for All).  I never was a fan of Metallica until the later years of high school.  The reason for this was probably from this [Beavis and Butthead](https://www.youtube.com/watch?v=Z08JxZDBYWw) clip.  The Cowardly Lion reference still makes me laugh my ass off.  I had listened to Metallica but mostly stuff from the Black Album, Load and Reload.  Looking back on it now, I don't mind it as much but at the time I wasn't a fan.  In high school I finally heard "One" and it is definitely an epic metal song.  By epic, I don't mean the hipster way of saying something is "epic" but in the literal definition.  Everything from the opening guitar solo to the ending are amazing.  I would also argue that the guitar riffs during the breakdown are heavier than 99% of the breakdowns in hardcore songs.  Also, how can James Hetfield down pick so quick?!  
