@@ -392,3 +392,13 @@
 				Be a friend, pick me up off the ground
 				
 		It reminds me of my youth that I miss.
+	
+	
+106.   ["Black Me Out"](https://open.spotify.com/track/6XI33hctgDLUIRKI8wsJS4?si=a0d469b501154542) Against Me! (Transgender Dysphoria Blues).  Some albums remind me of a time and place I listened to them.  For this album, it reminds me of walking around [Keflavik, Iceland](https://en.wikipedia.org/wiki/Keflav%C3%ADk).  I visited Iceland and ended up in this small town for a few days so I just walked around for a couple of hours each day.  This album was recommended to me and I downloaded it before my trip.  I would play this album on repeat while walking around the city and the area around it.  A short album (under 30 minutes), I was reminded of it the other day when reading an article about the "Top 10 Concept Albums of the 2000s".  I never before thought of this album as a concept album but it does make sense.  It's a solid album all the way through but the opening riff and the opening lyrics are just filled with visceral anger:
+				
+				I don't ever want to talk that way again  
+				I don't want to know people like that anymore  
+				As if there was an obligation  
+				As if I owed you something
+
+		This is probably the only verse in the song that doesn't have profanity in it either.  The choice of this song to close the album was a great decision as it ties the entire album together.
