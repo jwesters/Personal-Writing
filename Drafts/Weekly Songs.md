@@ -402,3 +402,5 @@
 				As if I owed you something
 
 		This is probably the only verse in the song that doesn't have profanity in it either.  The choice of this song to close the album was a great decision as it ties the entire album together.
+
+107. ["Formed a Band"](https://open.spotify.com/track/6BMhrvODuuB1KasGoSM5S2?si=3b4308230bef4e89) Art Brut (Bang Bang Rock and Roll).  If anyone argues that video games aren't relevant in today's culture then I would argue that I probably wouldn't have heard of this band if it weren't for [FIFA Street 2](https://en.wikipedia.org/wiki/FIFA_Street_2).  This song is a song that people either love or hate.  I can understand both sides.  It has a very repetitive chorus and the singer has a voice that is somewhat monotone.  That said, this song is catchy as hell and whenever I hear it I think of FIFA Street 2 for XBox.    
