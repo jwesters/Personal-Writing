@@ -428,3 +428,5 @@ I'm not saying it's non-sensical but I have no idea what it means and I'm fine w
 			Nobody seemed to notice me
 
 This issue came out shortly after [Joe Strummer's](https://en.wikipedia.org/wiki/Joe_Strummer) death.  
+
+114. ["Juice"](https://open.spotify.com/track/0k664IuFwVP557Gnx7RhIl?si=e9b681e6fc774b45) Lizzo (Cuz I Love You).  Once again this is a song that based on everything I listen to I should hate.  There's something about this song where it has a classic 80s dance vibe to it and a catchy bass line that makes me like it (not enough to shake my ass to it, I don't dance).  I'm not a fan of the video (and that's not me fat-shaming, it's just too cheesy).  I was a fan of this entire album and actually have pre-ordered Lizzo's next album (on vinyl as I'm a hipster).
