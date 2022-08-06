@@ -4,13 +4,13 @@
     "type": "split",
     "children": [
       {
-        "id": "5f0eea7b9d16372d",
+        "id": "940556a7bc131ea5",
         "type": "leaf",
         "state": {
           "type": "markdown",
           "state": {
             "file": "Drafts/Weekly Songs.md",
-            "mode": "source",
+            "mode": "preview",
             "source": false
           }
         }
@@ -87,10 +87,10 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "5f0eea7b9d16372d",
+  "active": "940556a7bc131ea5",
   "lastOpenFiles": [
-    "Finished/Top 25 Songs.md",
     "Drafts/Weekly Songs.md",
+    "Finished/Top 25 Songs.md",
     "().md",
     "Drafts/Rolling Stone's Top 500 Album (2020).md",
     "Drafts/Weekly Songs (conflicting copy).md",
