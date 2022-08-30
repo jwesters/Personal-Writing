@@ -451,3 +451,9 @@ This issue came out shortly after [Joe Strummer's](https://en.wikipedia.org/wiki
 			It takes two when it used to take only one
 
 Somewhat ironically I remember hearing this song one winter in a grocery store [Superstore](https://en.wikipedia.org/wiki/Real_Canadian_Superstore)whenever I was in the pharmacy section.
+
+122. ["Random Rules"](https://open.spotify.com/track/6lquLzGE5CRoq2htyr2QGS?si=bb1925ae35424589) Silver Jews (American Water).  Unfortunately, I never heard of this band until after singer [David Berman's](https://en.wikipedia.org/wiki/David_Berman_(musician)) death.  I find their music somewhat similar to [The Eels](https://en.wikipedia.org/wiki/Eels_(band)) in that the lyrics are often sarcastic and the singing is quite monotone.  While speaking about The Eels, singer [Mark Oliver Everett's](https://en.wikipedia.org/wiki/Mark_Oliver_Everett) autobiography ["Things the Grandchildren Should Know"](https://en.wikipedia.org/wiki/Things_the_Grandchildren_Should_Know) is an amazing book and a must read.  This song has a somewhat dark tone to in terms of lyrics but the horns make it seem happy.  This creates a juxtaposition which stands out with Berman's fairly monotone, but sharp, lyrics.  The lines that I heard the first time listening to this song that still give me goose bumps when I even hear them now are:
+
+			So if you don't want me I promise not to linger  
+			But before I go I gotta ask you dear about the tan line on your ring finger
+
