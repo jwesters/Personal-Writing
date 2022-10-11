@@ -479,3 +479,5 @@ Somewhat ironically I remember hearing this song one winter in a grocery store [
 			An empty bottle of gin
 
 I must have played this song on repeat for a few days on end and bawled my eyes out while the song played.  My apologies to my old roommates and I want to say thanks to them for not telling me to quit playing this song over and over. 
+
+129. ["Turn Your Back"](https://open.spotify.com/track/7AK0d1Qp3XAxFwM9GRIDER?si=5049ceed2d804910) Billy Talent (Billy Talent III).  Although I included the album track for this song, I actually prefer the [version with Anti-Flag](https://www.youtube.com/watch?v=q-zPPi_QB8A).  I'm normally not a huge fan of Anti-Flag but this song is better with them.  There's something about Billy Talent that stands out to me from other bands that are of a similar genre; the unique chords used by guitarist Ian D'sa.  In a way it reminds me of Dillinger Escape Plan in that the chords aren't something you typically hear in this type of music.  
