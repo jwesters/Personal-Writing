@@ -18,21 +18,8 @@
                 "source": false
               }
             }
-          },
-          {
-            "id": "e8f9722a6eb6efff",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Drafts/Weekly Songs.md",
-                "mode": "source",
-                "source": false
-              }
-            }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -118,14 +105,14 @@
       "markdown-importer:Open format converter": false
     }
   },
-  "active": "e8f9722a6eb6efff",
+  "active": "77b15efdeef81faf",
   "lastOpenFiles": [
-    "Drafts/Weekly Songs (John W's conflicted copy).md",
-    "Finished/Top 25 Songs.md",
-    "Untitled.md",
-    "Drafts/Weekly Songs.md",
-    "Weekly.md",
     "Drafts/Rolling Stone's Top 500 Album (2020).md",
+    "Finished/Top 25 Songs.md",
+    "Drafts/Weekly Songs.md",
+    "Drafts/Weekly Songs (John W's conflicted copy).md",
+    "Untitled.md",
+    "Weekly.md",
     "().md",
     "Drafts/Weekly Songs (conflicting copy).md",
     "Drafts/Rolling Stone Top 500 (2020).md",
