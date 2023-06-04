@@ -574,4 +574,5 @@ I must have played this song on repeat for a few days on end and bawled my eyes 
 		No more screaming fights on the telephone  
 		No more stinking lies, no more phony "I love you"s  
 		'Cause I can't stand me, and I can't stand you
-	
+
+167. ["Rehab"](https://open.spotify.com/track/1L5tZi0izXsi5Kk5OJf4W0?si=de18c926d25b4e11) Amy Winehouse (Back to Black).  Another popular song that based on most of my picks, I shouldn't like.   Maybe it's the horns that make me a sucker for it, but it does have a moving bass line and lyrics that somewhat contradict the happy mood of the song.  I've listened to some other songs by Amy Winehouse and while I don't mind them, I don't find any of them as good as this.  I guess I'm a pop fan now.   
