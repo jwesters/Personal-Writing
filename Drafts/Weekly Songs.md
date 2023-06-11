@@ -576,3 +576,5 @@ I must have played this song on repeat for a few days on end and bawled my eyes 
 		'Cause I can't stand me, and I can't stand you
 
 167. ["Rehab"](https://open.spotify.com/track/1L5tZi0izXsi5Kk5OJf4W0?si=de18c926d25b4e11) Amy Winehouse (Back to Black).  Another popular song that based on most of my picks, I shouldn't like.   Maybe it's the horns that make me a sucker for it, but it does have a moving bass line and lyrics that somewhat contradict the happy mood of the song.  I've listened to some other songs by Amy Winehouse and while I don't mind them, I don't find any of them as good as this.  I guess I'm a pop fan now.   
+
+168. ["The Night"](https://open.spotify.com/track/0qrqLMMCGovs20AftIyRrf?si=bd9c3f45652147ac) Atmosphere (You Can't Imagine How Much Fun We're Having).  This song totally contradicts the album title.  The first time I heard it I wasn't sure if it was based on a true story.  [It is](https://genius.com/Atmosphere-that-night-lyrics).  Scroll down to the bottom to see the About section.  Unfortunately the links don't work anymore so you may have to look for more information if you're inclined to.
