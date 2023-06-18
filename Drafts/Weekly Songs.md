@@ -577,4 +577,14 @@ I must have played this song on repeat for a few days on end and bawled my eyes 
 
 167. ["Rehab"](https://open.spotify.com/track/1L5tZi0izXsi5Kk5OJf4W0?si=de18c926d25b4e11) Amy Winehouse (Back to Black).  Another popular song that based on most of my picks, I shouldn't like.   Maybe it's the horns that make me a sucker for it, but it does have a moving bass line and lyrics that somewhat contradict the happy mood of the song.  I've listened to some other songs by Amy Winehouse and while I don't mind them, I don't find any of them as good as this.  I guess I'm a pop fan now.   
 
-168. ["The Night"](https://open.spotify.com/track/0qrqLMMCGovs20AftIyRrf?si=bd9c3f45652147ac) Atmosphere (You Can't Imagine How Much Fun We're Having).  This song totally contradicts the album title.  The first time I heard it I wasn't sure if it was based on a true story.  [It is](https://genius.com/Atmosphere-that-night-lyrics).  Scroll down to the bottom to see the About section.  Unfortunately the links don't work anymore so you may have to look for more information if you're inclined to.
+168. ["The Night"](https://open.spotify.com/track/0qrqLMMCGovs20AftIyRrf?si=bd9c3f45652147ac) Atmosphere (You Can't Imagine How Much Fun We're Having).  This song totally contradicts the album title.  The first time I heard it I wasn't sure if it was based on a true story.  [It is](https://genius.com/Atmosphere-that-night-lyrics).  Scroll down to the bottom to see the About section.  Unfortunately, the links don't work anymore so you may have to look for more information if you're inclined to.
+
+169. ["Stranger Than Fiction"](https://open.spotify.com/track/6ZCDfhSSqvpM8rW344srSM?si=e0180b92ee764a92) Bad Religion (Stranger than Fiction).   This is an album that my sister bought. She used a fence and the people she hung around with her a few years older and that's how I was introduced to a lot of punk music. I've heard some people criticize this album for being to "pop".  However, I would say this is the most consistent album by Bad Religion. In my opinion anyways, other people may think differently.  The opening, descending riff draws you in and when Greg Gaffin sings: 
+
+		Life is the crummiest book I ever read  
+		There isn't a hook  
+		Just a lot of cheap shots  
+		Pictures to shock  
+		And characters an amateur would never dream up
+
+You realize the truth in his lyrics.
