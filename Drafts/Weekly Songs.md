@@ -588,3 +588,14 @@ I must have played this song on repeat for a few days on end and bawled my eyes 
 		And characters an amateur would never dream up
 
 You realize the truth in his lyrics.
+
+170. ["Fill in the Blank"](https://open.spotify.com/track/0SVvyfRMFMRJzc0L2odX20?si=80cdd14a1fe54699) Car Seat Headrest (Teens of Denial).  Another band where I don't know where I first heard about them.  Maybe on a torrent site?  While I like this song, the intro of it where there's a woman introducing the album makes me cringe.  I almost wish it was on track 1 and this song was on track 2.  It ruins it for me as I just think of a hipster girl whenever I hear it and it just seems pretentious to me.   I hate using the word *emo* as it seems like a hipster word to use but I would say this song is definitely that.  I normally am not a fan of the woe-is-me type music (even though I am a hypocrite as I definitely can be a woe-is-me person).   However, these lyrics permeate with me:   
+
+			I've known for a long time  
+			I'm not getting what I want out of people  
+			It took me a long time  
+			To figure out I don't know what I want  
+			So you'll ask "Why?" and there will be no answer  
+			Then you'll ask "For how long?" and there will be no answer  
+			Then you'll ask "What can I do?" and there'll be no answer  
+			And eventually you will shut up
