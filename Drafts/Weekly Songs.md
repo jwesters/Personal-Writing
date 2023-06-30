@@ -599,3 +599,10 @@ You realize the truth in his lyrics.
 			Then you'll ask "For how long?" and there will be no answer  
 			Then you'll ask "What can I do?" and there'll be no answer  
 			And eventually you will shut up
+
+171. ["Guava Jelly"](https://www.youtube.com/watch?v=4_TacIPIIGI) Bob Marley (Songs of Freedom).  I am amazed this song isn't on Spotify.  I first heard of it being covered by Sublime on the [Sublime Acoustic: Bradley Nowell & Friends](https://open.spotify.com/track/1uCzlBE0jqEFoEqJMbm6lR?si=8ad88982f0274c84)album (which looks like a burned CD).  I bought this album from a classmate and he had to preface the sale by saying this was the cover art of the album.  Cool idea, and I'm unsure if they were the first band to do this (I know System of a Down later did this with their "Steal this Album" album).  Four lines in this song always stand out to me and it always plays in my head when you know a relationship is ending, you don't want it to but know it should.
+
+			You said you love me  
+			I said I love you  
+			Why won't you stop your crying?  
+			Dry your weeping eyes
