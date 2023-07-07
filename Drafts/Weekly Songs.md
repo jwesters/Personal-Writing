@@ -606,3 +606,5 @@ You realize the truth in his lyrics.
 			I said I love you  
 			Why won't you stop your crying?  
 			Dry your weeping eyes
+
+172. ["hollywood sucks//"](https://open.spotify.com/track/4jYd4edE6RjDUm27rHFERQ?si=c946068683bb4b37) KennyHoopla, Travis Barker (SURVIVORS GUILT: THE MIXTAPE//).  Before going over why I picked this song, I have to say I hate the new trend of artists having their song titles in all lowercase or uppercase and having certain punctuation at the end (for example, this song and album's titles having two forward slashes at the end).  I heard of this song while watching a [Rick Beato](https://www.youtube.com/rickbeato) video where he went over some of the most popular songs on Spotify at the time.  Here is the [specific video](https://www.youtube.com/watch?v=j0TAoNG36_c&t=1213s)  Rather then reiterate pretty much everything he says, just watch the damn video.  
