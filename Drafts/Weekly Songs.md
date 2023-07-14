@@ -608,3 +608,9 @@ You realize the truth in his lyrics.
 			Dry your weeping eyes
 
 172. ["hollywood sucks//"](https://open.spotify.com/track/4jYd4edE6RjDUm27rHFERQ?si=c946068683bb4b37) KennyHoopla, Travis Barker (SURVIVORS GUILT: THE MIXTAPE//).  Before going over why I picked this song, I have to say I hate the new trend of artists having their song titles in all lowercase or uppercase and having certain punctuation at the end (for example, this song and album's titles having two forward slashes at the end).  I heard of this song while watching a [Rick Beato](https://www.youtube.com/rickbeato) video where he went over some of the most popular songs on Spotify at the time.  Here is the [specific video](https://www.youtube.com/watch?v=j0TAoNG36_c&t=1213s)  Rather then reiterate pretty much everything he says, just watch the damn video.  
+
+174. ["Zero"](https://open.spotify.com/track/4YFcGTdgmEuw8xTO4XrxbB?si=286bd235d40b4d14) The Smashing Pumpkins (Mellon Collie and The Infinite Sadness).  I have mentioned most of the popular grunge bands when choosing a favourite song of the week.  This is the first time I've mentioned The Smashing Pumpkins (and some may argue that they aren't a grunge band).  While I don't mind the band, I never really got into them.  Billy Corgan's voice is a bit nasally, in my opinion.  That said, I do like his support of [pro wrestling](https://en.wikipedia.org/wiki/National_Wrestling_Alliance).   The riffs in this song often use harmonics and that's something I always find catchy.   I think the main reason this song stands out for me is when all the instruments stop and punctuate the following lyrics:
+
+			Emptiness is loneliness, and loneliness is cleanliness  
+			And cleanliness is godliness, and God is empty  
+			Just like me
