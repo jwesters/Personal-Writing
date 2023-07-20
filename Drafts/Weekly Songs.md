@@ -614,3 +614,6 @@ You realize the truth in his lyrics.
 			Emptiness is loneliness, and loneliness is cleanliness  
 			And cleanliness is godliness, and God is empty  
 			Just like me
+
+175. ["Goddamn Lonely Love"](https://open.spotify.com/track/241LK9hqfXJyWpQ7oClQSN?si=887afe93f21c4408) Drive-By Truckers (The Complete Dirty South).  Jason Isbell wrote this song and with the re-release of this album they are some liner notes in it.  Regarding this song, Patterson Hood writes in the liner notes that "One day, Jason and I were discussing song bridges.  How they were kind of a lost art.  He remarked that often they were gratuitous and un-necessary.  He said that if you were going to put a bridge in your song, it had better be worth it.  The next time I saw him he had just written Goddamn Lonely Love and when he played it for me, I couldn't help but notice that it had one of the most amazing bridges that I have ever heard.  When I remarked about that, he just smiled, really big.  One of my favorite Jason Isbell songs ever."
+ 
