@@ -617,3 +617,11 @@ You realize the truth in his lyrics.
 
 175. ["Goddamn Lonely Love"](https://open.spotify.com/track/241LK9hqfXJyWpQ7oClQSN?si=887afe93f21c4408) Drive-By Truckers (The Complete Dirty South).  Jason Isbell wrote this song and with the re-release of this album they are some liner notes in it.  Regarding this song, Patterson Hood writes in the liner notes that "One day, Jason and I were discussing song bridges.  How they were kind of a lost art.  He remarked that often they were gratuitous and un-necessary.  He said that if you were going to put a bridge in your song, it had better be worth it.  The next time I saw him he had just written Goddamn Lonely Love and when he played it for me, I couldn't help but notice that it had one of the most amazing bridges that I have ever heard.  When I remarked about that, he just smiled, really big.  One of my favorite Jason Isbell songs ever."
  
+176. ["P.S. You Rock My World"](https://open.spotify.com/track/3KIqqNdLcIAZZitlFmw4Ow?si=d4d3d6d6247f4db6) Eels (Electro-Shock Blues).  Although I knew of the Eels, I only started listening to them after a friend told me that my writing was very similar to [Mark Oliver Everett's](https://en.wikipedia.org/wiki/Mark_Oliver_Everett), the front man for the Eels.   They were specifically referring to his autobiographical book ["Things the Grandchildren Should Know"](https://en.wikipedia.org/wiki/Things_the_Grandchildren_Should_Know).  After reading the book, I picked up this album as it seemed to be the most personal of his albums.  Without going into too many details about what happened in Mark Oliver Everett's life, it definitely can be viewed as tragic.  This song closes the album and the opening lines show someone reflecting about all the tragedies that have happened to them but know that they still have a life to live.
+
+			I was at a funeral the day I realized  
+			I wanted to spend my life with you  
+			Sitting down on the steps at the old post office  
+			The flag was flying at half-mast  
+			And I was thinkin' 'bout how everyone is dying  
+			And maybe it's time to live
