@@ -18,8 +18,21 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "de633c1f0ec8970e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Drafts/Weekly Songs.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -113,7 +126,7 @@
       "markdown-importer:Open format converter": false
     }
   },
-  "active": "9274ca436c6a520b",
+  "active": "de633c1f0ec8970e",
   "lastOpenFiles": [
     "Drafts/Weekly Songs.md",
     "Finished/Top 25 Songs.md",
