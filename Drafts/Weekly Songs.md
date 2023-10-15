@@ -649,3 +649,5 @@ You realize the truth in his lyrics.
 187. "Spirit of '87'" (https://open.spotify.com/track/11LLAA8ur0h06BjAJmG4zl?si=c263a6e23ffa4c53) Rancid (Indestructible).  There's something about the aggressive nature of this song that gets me pumped out.  Funny enough, I never knew their was a [video](https://www.youtube.com/watch?v=IiTMHK1MebA) for this song until today.  
 
 188. ["Fundamental"](https://open.spotify.com/track/0bQTTytCfnxIWjYi9TRSBE?si=fb0d6f5cbf0e4efa) Puya (Fundamental).  I heard about this band probably in the late '90s from a metal blog called Against.net.  The combination of metal and Spanish influences interested me (I believe I was listening to [Soulfly](https://en.wikipedia.org/wiki/Soulfly) around this time but could be wrong).  I believe all the lyrics are in Spanish so for all the songs could be mocking me not understanding what they are saying  I'm fine with that, as long as it has a groove.
+
+189.  ["Temporary Places"](https://open.spotify.com/track/3k04M45DYWlXBBW2bo4T8b?si=e50af61b3396447a) Bus Driver (Imaginary Places).  Just something about that quick rap and flute melody.  
