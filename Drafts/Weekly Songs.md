@@ -667,3 +667,5 @@ You realize the truth in his lyrics.
 196. ["The Alcoholik"](https://open.spotify.com/track/3qfGG5SqWBrNsQztewvmtV?si=b057da6dd6ac4fa6) Superjoint Ritual (Use Once and Destroy).  A side project of Phil Anselmo of Pantera, this is music that will get your blood going even if you're normally not a fan of heavy music.  I think I saw the video for this song on MuchMusic's Loud one night and went out and bought it the next day.  Remember when music videos were actually on TV?
 
 197. ["Broken Halos"](https://open.spotify.com/track/06gD2ZtK3Dzc1BYqWExQJJ?si=7deb065875a54040) Chris Stapleton (From A Room: Volume 1).  Yeah... a fairly modern country song I like.  Deal with it.
+
+198. ["Voices of the Voiceless"](https://open.spotify.com/track/2l4ltNg9BARXbTDYKcJ9jc?si=062ed7581d264186) Lowkey, Immortal Technique (Soundtrack to the Struggle...)  I heard of this song through [Immortal Technique](https://en.wikipedia.org/wiki/Immortal_Technique).   Highly political, like Immortal Technique, his accent also is something I find I really enjoy for some odd reason.  More than anything, his lyrics are deep.  Check out the lyrics for this song as an example.
