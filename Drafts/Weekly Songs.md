@@ -669,3 +669,5 @@ You realize the truth in his lyrics.
 197. ["Broken Halos"](https://open.spotify.com/track/06gD2ZtK3Dzc1BYqWExQJJ?si=7deb065875a54040) Chris Stapleton (From A Room: Volume 1).  Yeah... a fairly modern country song I like.  Deal with it.
 
 198. ["Voices of the Voiceless"](https://open.spotify.com/track/2l4ltNg9BARXbTDYKcJ9jc?si=062ed7581d264186) Lowkey, Immortal Technique (Soundtrack to the Struggle...)  I heard of this song through [Immortal Technique](https://en.wikipedia.org/wiki/Immortal_Technique).   Highly political, like Immortal Technique, his accent also is something I find I really enjoy for some odd reason.  More than anything, his lyrics are deep.  Check out the lyrics for this song as an example.
+
+199. ["Tears in Heaven"](https://open.spotify.com/track/3UqHlIBI771FNCiLY5MKrp?si=57eabe9ed80f44ba) Eric Clapton (Unplugged).  I'm not a fan of Eric Clapton for a variety of reasons but I have to admit this is a heartfelt song.  Unfortunately, the fact I've been to a half dozen funerals where this song was played has kind of numbed me to the sentiment of it.  Regardless, it still is a solid song.
